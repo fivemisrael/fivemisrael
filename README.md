@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-FiveM Israel is sh\*t community so lemme upload some sh\*t.
+<h1>FiveM Israel is sh*t community so lemme upload some sh*t.</h1>
 
 Meanwhile, that's the count who watched my garbage.
 
